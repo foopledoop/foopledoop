@@ -1,1 +1,1 @@
-i only made this so i could help hekalet
+im just a guy who figured out how to copy and paste from one thing to another
